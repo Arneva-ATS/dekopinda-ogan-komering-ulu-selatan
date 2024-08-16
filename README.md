@@ -1,1 +1,1 @@
-# dekopinda-ogan-komering-ulu-selatan
+# dekopinda-karanganyar
